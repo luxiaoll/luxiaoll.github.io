@@ -1,4 +1,4 @@
-# 爆款从何而来？每日大赛为你解析自媒体流量密码！
+# [爆款从何而来？每日大赛为你解析自媒体流量密码](https://mrdsa.gitbook.io/mrdsa-docs/)！
 # [每日大赛](https://www.selfmediastudio.cc/)：https://www.selfmediastudio.cc/
 你是否每天精心制作内容，播放量却始终不温不火？看着别人篇篇10万+，心里既羡慕又困惑：爆款到底是怎么炼成的？
 
